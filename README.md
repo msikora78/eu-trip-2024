@@ -83,3 +83,74 @@
 3. The Transfagarasan road can get busy. Start early to avoid traffic and have more time for stops.
 4. Always have snacks, water, and entertainment for your son during long drives.
 5. Check the opening hours for attractions, especially those requiring a detour from your main route.
+
+
+# Radauti and Bucovina (August 14-15)
+
+## Day 1: August 14
+
+### Morning
+- Arrive and settle into your accommodation
+- Light exploration of Radauti town center
+  - Visit the Old Market Square (Piata Unirii)
+  - See the Bogdana Monastery, the oldest stone church in Moldavia
+
+### Afternoon
+- Visit the Marginea Black Pottery Center
+  - Watch artisans at work
+  - Opportunity for your son to try shaping clay
+  - Shop for unique souvenirs
+
+### Evening
+- Family dinner at a local restaurant
+  - Try traditional Bucovinian dishes like "ciorba radauteana" (sour cream soup)
+
+## Day 2: August 15
+
+### Morning
+- Visit Sucevita Monastery (~30 min drive)
+  - UNESCO World Heritage site
+  - Known for its exterior frescoes and fortified walls
+  - Small museum with religious artifacts
+
+### Afternoon
+- Drive to Moldovita Monastery (~45 min from Sucevita)
+  - Another painted monastery with beautiful frescoes
+  - Less crowded than some other sites
+
+### Late Afternoon
+- Stop at the Egg Museum in Vama (on the way back to Radauti)
+  - See intricately painted Easter eggs
+  - Your son might enjoy the colorful displays
+
+### Evening
+- Prepare for departure to Brasov the next day
+
+## Additional Activities (if time allows):
+
+1. **Cacica Salt Mine**
+   - About 30 minutes from Radauti
+   - Underground church and dance hall
+   - Might be interesting for your son, but check if it's suitable for young children
+
+2. **Putna Monastery**
+   - About 40 minutes from Radauti
+   - Oldest royal monastery in Moldavia
+   - Beautiful forest setting
+
+3. **Radauti Ethnographic Museum**
+   - In town, easy to visit
+   - Displays of traditional costumes and crafts
+
+4. **Voronet Monastery**
+   - Known as the "Sistine Chapel of the East"
+   - Famous for its blue frescoes
+   - About an hour's drive from Radauti
+
+## Tips for Radauti with a 4-year-old:
+
+1. Pack some bread to feed ducks in the park near Bogdana Monastery.
+2. Bring crayons and paper for your son to draw the colorful frescoes he sees.
+3. Look for local playgrounds to let him burn off energy between sightseeing.
+4. Consider buying a small painted wooden egg as a special souvenir for him.
+5. Monasteries can be quiet places - have a quiet activity ready to occupy him during visits.
