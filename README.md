@@ -338,3 +338,127 @@
   - **Activity**: Settle into your accommodation in Oradea.
   - **Dinner**: Enjoy a light meal at a local restaurant.
   - **Suggestion**: "Rivo Restaurant & Lounge" for a modern dining experience by the river.
+
+
+## Oradea Itinerary (August 23 - August 25)
+
+### **Day 12: August 23**
+- **Evening: Arrival in Oradea**
+  - **Activity**: Settle into your accommodation in Oradea.
+  - **Suggestion**: Choose a family-friendly hotel or Airbnb near the city center for easy access to attractions.
+  - **Dinner**: Enjoy a meal at "Rivo Restaurant & Lounge" for a modern dining experience by the river.
+
+### **Day 13: August 24**
+- **Morning: Return the Rental Car**
+  - **Activity**: Drop off the rental car at the designated location in Oradea.
+  - **Tip**: Confirm the drop-off time and location in advance to avoid any delays.
+
+- **Late Morning: Visit the Oradea Fortress**
+  - **Location**: Piata Cetatii 1, Oradea
+  - **Description**: A historic fortress with exhibitions and beautiful grounds to explore.
+  - **Activity**: Walk around the fortress, visit the museum, and enjoy the views from the walls.
+
+- **Lunch: Local Restaurant in Oradea**
+  - **Suggestion**: "Restaurant Allegria" for a mix of Romanian and international cuisine.
+
+- **Afternoon: Thermal Baths and Aquapark**
+  - **Location**: Nymphaea Aquapark Oradea, Aleea Strandului 13 B
+  - **Description**: A large water park with thermal baths, pools, slides, and wellness facilities.
+  - **Activity**: Relax in the thermal baths, enjoy the pools and slides with your son, and unwind in the wellness areas.
+
+- **Evening: Explore Piata Unirii (Union Square)**
+  - **Activity**: Stroll around the square, visit the Black Eagle Palace, and enjoy the lively atmosphere.
+  - **Dinner**: Have a meal at "Spoon Bar & Grill" for a delightful dining experience with a view of the square.
+
+### **Day 14: August 25**
+- **Morning: Departure for Budapest**
+  - **Activity**: Pack up and prepare for the journey to Budapest.
+  - **Tip**: Ensure all belongings are packed and the accommodation is left in good condition.
+
+- **Travel: Head to Budapest**
+  - **Distance**: Approx. 3.5 hours (230 km) drive or a train journey to Budapest.
+  - **Activity**: Enjoy the scenic drive or relax on the train as you head to your next destination.
+
+### **Additional Tips for Oradea**
+- **Local Markets**: Visit a local market to buy fresh fruits, vegetables, and local products. It’s a great way to experience local culture.
+- **Playgrounds**: There are several small playgrounds around Oradea where your son can play and burn off some energy.
+- **Family Time**: Spend quality time with your family, letting them show you their favorite local spots and share stories about the area.
+
+
+## Budapest Itinerary (August 25 - August 29)
+
+### **Day 1: August 25**
+- **Afternoon: Arrival in Budapest**
+  - **Activity**: Check into your accommodation in Budapest.
+  - **Suggestion**: Choose a centrally located hotel or Airbnb for easy access to main attractions.
+  - **Late Afternoon**: Take a leisurely walk along the Danube Promenade.
+  - **Dinner**: Enjoy a meal at "Vapiano," a family-friendly restaurant offering Italian cuisine.
+
+### **Day 2: August 26**
+- **Morning: Buda Castle and Castle Hill**
+  - **Location**: Buda Castle District
+  - **Description**: Explore the historic Buda Castle, Matthias Church, and Fisherman's Bastion.
+  - **Activity**: Enjoy panoramic views of Budapest from the Fisherman's Bastion.
+  - **Tip**: Take the funicular railway up to the castle for a fun experience.
+
+- **Lunch: Local Restaurant in Castle District**
+  - **Suggestion**: "Pest-Buda Bistro" for traditional Hungarian cuisine.
+
+- **Afternoon: Budapest History Museum**
+  - **Location**: Inside Buda Castle
+  - **Description**: Discover the history of Budapest from its beginnings to modern times.
+  - **Activity**: Interactive exhibits that are engaging for children.
+
+- **Evening: Danube River Cruise**
+  - **Activity**: Take an evening cruise on the Danube River to see the city’s landmarks illuminated.
+  - **Dinner**: Enjoy dinner on the cruise or at a riverside restaurant like "Spoon The Boat Restaurant."
+
+### **Day 3: August 27**
+- **Morning: Heroes’ Square and City Park**
+  - **Location**: Hősök tere, Budapest
+  - **Description**: Visit Heroes’ Square, then explore the nearby City Park.
+  - **Activity**: Walk through the park, visit Vajdahunyad Castle, and stop by the playground for your son.
+
+- **Lunch: Local Eatery in City Park**
+  - **Suggestion**: "Robinson Restaurant" by the lake in City Park.
+
+- **Afternoon: Széchenyi Thermal Bath**
+  - **Location**: City Park
+  - **Description**: One of the largest and most famous thermal baths in Europe.
+  - **Activity**: Relax in the thermal baths and enjoy the family-friendly pools.
+  - **Tip**: Bring swimsuits, towels, and flip-flops.
+
+- **Evening: Explore Andrassy Avenue**
+  - **Activity**: Stroll along this grand boulevard, visit shops, and enjoy the architecture.
+  - **Dinner**: "Menza Restaurant" for a trendy dining experience with Hungarian dishes.
+
+### **Day 4: August 28**
+- **Morning: Parliament Building and St. Stephen’s Basilica**
+  - **Location**: Kossuth Lajos Square, Budapest
+  - **Description**: Tour the impressive Hungarian Parliament Building.
+  - **Activity**: Explore the nearby St. Stephen’s Basilica and take in the views from the dome.
+  - **Tip**: Book a guided tour of the Parliament in advance.
+
+- **Lunch: Local Café Near Parliament**
+  - **Suggestion**: "Café Gerbeaud" for a historic café experience with delicious pastries.
+
+- **Afternoon: Margaret Island**
+  - **Location**: Middle of the Danube River
+  - **Description**: A large recreational island with parks, gardens, and fountains.
+  - **Activity**: Rent bikes or a family-friendly pedal cart to explore the island, visit the mini-zoo, and enjoy the musical fountain.
+
+- **Evening: Final Night in Budapest**
+  - **Activity**: Enjoy a relaxed evening with a walk along Váci Street and the Central Market Hall for last-minute shopping.
+  - **Dinner**: "Hungarikum Bistro" for a traditional Hungarian farewell meal.
+
+### **Day 5: August 29**
+- **Morning: Departure for Bratislava**
+  - **Activity**: Pack up and prepare for the journey to Bratislava.
+  - **Travel**: Head to Bratislava by train or car.
+  - **Tip**: Ensure you have snacks and entertainment for your son during the journey.
+  - **Arrival**: Arrive in Bratislava by the afternoon and check into your accommodation.
+
+### Additional Tips for Budapest
+- **Public Transportation**: Budapest has an efficient public transportation system. Consider getting a travel pass for easy access to buses, trams, and the metro.
+- **Family-Friendly Spots**: Look for parks and playgrounds for your son to enjoy during your city explorations.
+- **Local Markets**: Visit the Great Market Hall for local produce, souvenirs, and a taste of Hungarian street food.
