@@ -1,156 +1,99 @@
 # EU Family Trip 2024
 
 
-# Romania
+## Romania
 
-## Itinerary Overview
+### Overview
 
-- **Radauti**: August 13-15 (2 nights)
-- **Brasov**: August 15-19 (4 nights)
-- **Sibiu**: August 19-23 (4 nights)
-- **Oradea**: August 23-25 (2 nights)
+- **Travel Dates**: August 14 - August 24
+- **Start Point**: Radauti
+- **End Point**: Oradea (next stop: Budapest)
+- **Home Bases**:
+  - Radauti: August 14 - August 15
+  - Brasov: August 15 - August 19
+  - Sibiu: August 19 - August 23
+  - Oradea: August 23 - August 25
+- **Key Destinations**: Brasov, Sighisoara, Peles Castle, Corvin Castle, Bran Castle, Sibiu, Astra Open Air Museum, Transfagarasan
 
-## Detailed Itinerary
+### Itinerary Outline
 
-### Radauti (August 14-15)
+#### **Radauti (August 14 - August 15)**
+- **Day 1 (August 14)**: 
+  - Arrival and settling in Radauti.
+  - Visit the local sights such as the Radauti Monastery.
+  - Enjoy a family dinner at a local restaurant.
 
-- Arrival and settling in at your rental
-- Explore local area
-- Visit nearby Sucevita Monastery (painted monastery, UNESCO World Heritage site)
+- **Day 2 (August 15)**: 
+  - Morning: Explore the Sucevita Monastery and its beautiful surroundings.
+  - Afternoon: Drive to Brasov (approx. 6 hours).
 
-### Travel to Brasov (August 15)
+#### **Brasov (August 15 - August 19)**
+- **Day 3 (August 15)**:
+  - On the way to Brasov, stop at the Bicaz Gorge for a short hike and scenic views.
+  - Arrive in Brasov in the evening and settle in.
 
-- En route to Brasov (~6 hours), stop at Bicaz Gorge (~3.5 hours from Radauti)
-  - Scenic drive through the gorge
-  - Short walk to see the "Neck of Hell" rock formation
-  - Visit nearby Red Lake (Lacul Rosu)
+- **Day 4 (August 16)**:
+  - Visit Bran Castle (Dracula's Castle) in the morning.
+  - Explore the Rasnov Fortress in the afternoon.
+  - Stroll around Brasov Old Town and Council Square in the evening.
 
-### Brasov (August 15-19)
+- **Day 5 (August 17)**:
+  - Visit Peles Castle in Sinaia.
+  - Explore the surrounding gardens and enjoy a picnic.
 
-- Day 1 (arrival day): Evening stroll in Brasov's old town
-- Day 2: Explore Brasov, visit Black Church, Tampa Cable Car for city views
-- Day 3: Day trip to Peles Castle and Sinaia Monastery (~1.5 hours each way)
-- Day 4: Bran Castle in the morning, afternoon hike in Piatra Craiului National Park
+- **Day 6 (August 18)**:
+  - Take a cable car up to Mount Tampa for a short hike with panoramic views.
+  - Visit the Black Church and explore more of Brasov’s historical sites.
 
-### Travel to Sibiu (August 19)
+- **Day 7 (August 19)**:
+  - Drive to Sibiu, stopping at Biertan and Sighisoara along the way.
+  - Biertan: Visit the fortified church.
+  - Sighisoara: Explore the medieval town and visit the Clock Tower.
 
-- En route to Sibiu (~3 hours), visit Sighisoara (~2 hours from Brasov)
-  - Explore the citadel, climb the Clock Tower
-  - Visit the Church on the Hill and the covered staircase
-  - Visit the Fortified Church of Biertan (near Sighisoara)
+#### **Sibiu (August 19 - August 23)**
+- **Day 7 (August 19)**:
+  - Arrive in Sibiu in the evening and settle in.
 
-### Sibiu (August 19-23)
+- **Day 8 (August 20)**:
+  - Explore the Astra Open Air Museum.
+  - Stroll around Sibiu’s Old Town, visit the Brukenthal National Museum and the Bridge of Lies.
 
-- Day 1 (arrival day): Evening walk in Sibiu's old town
-- Day 2: Astra Open Air Museum, Sibiu city exploration
-- Day 3: Day trip to Corvin Castle (~1.5 hours each way)
-- Day 4: Drive the Transfagarasan road, short hikes and stops for views
+- **Day 9 (August 21)**:
+  - Day trip to Corvin Castle in Hunedoara.
+  - Enjoy a scenic drive and explore the castle grounds.
 
-### Travel to Oradea (August 23)
+- **Day 10 (August 22)**:
+  - Drive the Transfagarasan Highway, stopping at key viewpoints.
+  - Visit Balea Lake and enjoy a short hike.
 
-- En route to Oradea (~5 hours), stop at Turda Salt Mine (~3 hours from Sibiu)
-  - Underground lake with boat rides
-  - Mini-golf, bowling alley, and Ferris wheel inside the mine
+- **Day 11 (August 23)**:
+  - Drive to Oradea, stopping at Turda Salt Mine for a unique underground experience.
 
-### Oradea (August 23-24)
+#### **Oradea (August 23 - August 25)**
+- **Day 11 (August 23)**:
+  - Arrive in Oradea in the evening and settle in.
 
-- Explore Oradea's Art Nouveau architecture
-- Relax at Nymphaea Aquapark (great for kids)
-- Prepare for departure to Budapest
+- **Day 12 (August 24)**:
+  - Explore Oradea’s Art Nouveau architecture and historical sites.
+  - Visit the Oradea Fortress and enjoy the local thermal baths.
 
-## Additional Cool Suggestions
+- **Day 13 (August 25)**:
+  - Prepare for the trip to Budapest.
+  - Enjoy a relaxed morning in Oradea before departing.
 
-1. **Prejmer Fortified Church** (near Brasov): One of the best-preserved fortified churches in Eastern Europe, with a unique circular structure.
+### Additional Recommendations
 
-2. **Bear Sanctuary Zarnesti** (near Brasov): A rescue center for bears, offering a chance to see these animals in a natural setting.
+- **For Your 4-Year-Old Son**:
+  - In Brasov, visit the Zoo and Adventure Park for a fun day out.
+  - In Sibiu, the Sub Arini Park offers a great playground and walking paths.
+  - The Transfagarasan drive includes stops that are short and accessible for a young child.
 
-3. **Scarisoara Ice Cave** (possible detour between Sibiu and Oradea): One of the largest underground glaciers in Europe.
+- **Other Interesting Spots**:
+  - **Viscri**: A charming village with a fortified church, perfect for a quick visit on the way to Brasov or Sibiu.
+  - **Apuseni Mountains**: If you have extra time, this area offers beautiful scenery and easy hiking trails suitable for young children.
 
-4. **Alba Iulia Citadel** (possible stop between Sibiu and Oradea): A star-shaped fortress with beautifully restored Baroque gates.
-
-## Activities for Your 4-Year-Old Son
-
-1. Boat ride on the underground lake at Turda Salt Mine
-2. Cable car ride in Brasov
-3. Interactive exhibits at Astra Open Air Museum
-4. Watching the figurines parade at the Clock Tower in Sighisoara
-5. Nymphaea Aquapark in Oradea
-
-## Travel Tips
-
-1. The drive from Radauti to Brasov is long. Consider breaking it up with frequent stops and maybe a longer lunch break.
-2. Book tickets for popular attractions like Peles Castle in advance to avoid queues.
-3. The Transfagarasan road can get busy. Start early to avoid traffic and have more time for stops.
-4. Always have snacks, water, and entertainment for your son during long drives.
-5. Check the opening hours for attractions, especially those requiring a detour from your main route.
-
-
-# Radauti and Bucovina (August 14-15)
-
-## Day 1: August 14
-
-### Morning
-- Arrive and settle into your accommodation
-- Light exploration of Radauti town center
-  - Visit the Old Market Square (Piata Unirii)
-  - See the Bogdana Monastery, the oldest stone church in Moldavia
-
-### Afternoon
-- Visit the Marginea Black Pottery Center
-  - Watch artisans at work
-  - Opportunity for your son to try shaping clay
-  - Shop for unique souvenirs
-
-### Evening
-- Family dinner at a local restaurant
-  - Try traditional Bucovinian dishes like "ciorba radauteana" (sour cream soup)
-
-## Day 2: August 15
-
-### Morning
-- Visit Sucevita Monastery (~30 min drive)
-  - UNESCO World Heritage site
-  - Known for its exterior frescoes and fortified walls
-  - Small museum with religious artifacts
-
-### Afternoon
-- Drive to Moldovita Monastery (~45 min from Sucevita)
-  - Another painted monastery with beautiful frescoes
-  - Less crowded than some other sites
-
-### Late Afternoon
-- Stop at the Egg Museum in Vama (on the way back to Radauti)
-  - See intricately painted Easter eggs
-  - Your son might enjoy the colorful displays
-
-### Evening
-- Prepare for departure to Brasov the next day
-
-## Additional Activities (if time allows):
-
-1. **Cacica Salt Mine**
-   - About 30 minutes from Radauti
-   - Underground church and dance hall
-   - Might be interesting for your son, but check if it's suitable for young children
-
-2. **Putna Monastery**
-   - About 40 minutes from Radauti
-   - Oldest royal monastery in Moldavia
-   - Beautiful forest setting
-
-3. **Radauti Ethnographic Museum**
-   - In town, easy to visit
-   - Displays of traditional costumes and crafts
-
-4. **Voronet Monastery**
-   - Known as the "Sistine Chapel of the East"
-   - Famous for its blue frescoes
-   - About an hour's drive from Radauti
-
-## Tips for Radauti with a 4-year-old:
-
-1. Pack some bread to feed ducks in the park near Bogdana Monastery.
-2. Bring crayons and paper for your son to draw the colorful frescoes he sees.
-3. Look for local playgrounds to let him burn off energy between sightseeing.
-4. Consider buying a small painted wooden egg as a special souvenir for him.
-5. Monasteries can be quiet places - have a quiet activity ready to occupy him during visits.
+### Notes
+- Ensure to book accommodations in advance, especially in popular tourist areas like Brasov and Sibiu.
+- Check the opening hours and any special requirements for visiting castles and museums.
+- Plan for rest stops and short breaks during long drives to keep your son comfortable.
+!
